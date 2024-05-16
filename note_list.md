@@ -11,3 +11,5 @@
 [Week 4](https://hackmd.io/5jATae4vROKCsEqh55vhkg)
 
 [Week 5](https://hackmd.io/1YEscBinS3CKBP_W_Zxs5w)
+
+[Week 6](https://hackmd.io/J_AnJTl_SC6upZa9CsUR9A)
