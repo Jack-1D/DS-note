@@ -15,3 +15,5 @@
 [Week 6](https://hackmd.io/J_AnJTl_SC6upZa9CsUR9A)
 
 [Week 7](https://hackmd.io/uTeIYTeLTUywRYrAoJnayw)
+
+[Week 8](https://hackmd.io/_QxdZ6WtQ-eXb1JxbmNUWg)
